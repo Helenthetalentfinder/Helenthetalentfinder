@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Helenthetalentfinder
 - 👀 I’m interested to find best talents in the market
-- 🌱 I’m currently learning about new technologies happeing in recruitment
+- 🌱 I’m currently learning about new technologies happening in recruitment
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... @glory2k11@gmail.com
 
